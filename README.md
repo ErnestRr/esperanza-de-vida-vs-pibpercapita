@@ -9,3 +9,4 @@ El tamaño de los círculos importa. Los círculos grandes, como los de India y 
 En resumen, la riqueza ayuda a vivir más, pero sus beneficios más significativos se ven en las primeras etapas del desarrollo económico
 
 
+<img width="932" height="701" alt="image" src="https://github.com/user-attachments/assets/01dbecc6-0c11-440a-9a15-acc08d7d530d" />
